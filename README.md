@@ -8,3 +8,5 @@ utilizo esse espaço para mimha organização e compartilhamento dos meus projet
 
 **Você pode entrar em contato comigo**
 00001089396417sp@al.educacao.sp.gov.br
+
+@alurastartestudante
